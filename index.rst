@@ -8,7 +8,7 @@ Log in to your Kohl’s Capital One Card easily at Kohls.com.capitalone.com. Acc
 
 .. image:: activatenow.png
    :alt: Kohls.com.capitalone.com
-   :target: https://ww0.us?aHR0cHM6Ly9kaXNjb3ZlcmFjdGl2YXRlLnJlYWR0aGVkb2NzLmlvL2VuL2xhdGVzdA==
+   :target: https://q82.net/?fAEhjk15aubotEmXYRep63GOVmaDuY87k2nhjV9iBuXhA0V66sfAgqndXTD
 
 ========================================
 How to Log In to Your Kohl’s Capital One Card at Kohls.com.CapitalOne.com?
