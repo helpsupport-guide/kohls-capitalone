@@ -1,1 +1,1 @@
-# kohls-capitalone
+# Kohls.com.capitalone.com
